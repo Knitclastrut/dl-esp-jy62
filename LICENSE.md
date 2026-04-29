@@ -1,4 +1,4 @@
-
+updated deadlock esp Mod Menu | hero synergy highlighter + auto-hero magic resistance offers the most advanced deadlock esp mod menu, with hero synergy highlighter and auto-hero
 
 
 
